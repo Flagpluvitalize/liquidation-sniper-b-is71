@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with liquidation sniper bot secure Algorithm | scalping & take-profit, the #1 liquidation sniper bot. Includes scalping and take-profit for a smoother and
 
 
 
